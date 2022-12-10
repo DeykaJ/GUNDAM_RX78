@@ -123,7 +123,7 @@ Autores ✒️
 * Franger Lezcano
 * Elena Linares 		
 * Alexis García
-* Jorge Ruíz 
+* Jorge Muñoz 
 
 Otros comentarios 🎁
 ----------------------
